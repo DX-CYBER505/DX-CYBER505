@@ -9,7 +9,15 @@
 </h3>
 - 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [DX-CYBER BOY](https://github.com/DX-CYBER505)
 
+ -𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:-レイハンプレイボーイ
  
+ -𝐅𝐁 𝐆𝐑𝐎𝐔𝐏:-𝑇𝐸𝑅𝑀𝑈𝑋 𝐻𝐸𝐿𝑃𝐼𝑁𝐺 𝐶𝐸𝑁𝑇𝐸𝑅
+ 
+ -𝐌𝐒 𝐆𝐑𝐎𝐔𝐏:-⚠️TEᖇᗰᑌ᙭🔥ᕼEᒪᑭIᑎG☢️ᑕEᑎTEᖇ☢️⇻
+ 
+ -𝐓𝐄𝐀𝐌:-˜”*°•🔰DX-CYBER☣️TEAM☣️•°*”˜
+ 
+ -𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏:-+8801979526394
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
