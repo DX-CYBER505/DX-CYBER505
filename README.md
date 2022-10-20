@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=dx-cyber505&label=Profile%20views&color=0e75b6&style=flat" alt="dx-cyber505" /> </p>
 
-<img aling="right"alt="coding"width="400"src=https://ibb.co/QpMhYLD>
+<img aling="right"alt="coding"width="400"src="https://www.linkpicture.com/q/SGVhack18.gif">
 
 - 🔭 I’m currently working on **FB-CRAKING**
 
