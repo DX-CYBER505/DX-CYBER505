@@ -10,7 +10,7 @@
 
 [![image](https://www.linkpicture.com/q/SGVhack18_8.gif)](https://www.linkpicture.com/view.php?img=LPic63517e6c7db07780390008)
 
-- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [DX-CYBER BOY](https://github.com/DX-CYBER505)
+- 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [DX-CYBER BOY] (https://github.com/DX-CYBER505) 
 
 
  -𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:-レイハンプレイボーイ (https://www.facebook.com/Darkcyber6) 𝐹𝑂𝐿𝐿𝑂𝑊 𝑀𝐸 
