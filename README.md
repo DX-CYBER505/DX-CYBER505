@@ -8,7 +8,7 @@
   <img src="https://emoji.discord.st/emojis/768b108d-274f-4f44-a634-8477b16efce7.gif" width="25">
 </h3>
 
-https://www.linkpicture.com/view.php?img=LPic63517e6c7db07780390008
+(https://www.linkpicture.com/q/SGVhack18_8.gif)
 
 
 - 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [DX-CYBER BOY](https://github.com/DX-CYBER505)
