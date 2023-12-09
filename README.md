@@ -11,8 +11,7 @@
 [![image](https://www.linkpicture.com/q/SGVhack18_8.gif)](https://www.linkpicture.com/view.php?img=LPic63517e6c7db07780390008)
 
 - 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [DX-CYBER BOY] (https://github.com/DX-CYBER505) 
--
---NO DATA AVAILABLE ⚠️
+- NO DATA AVAILABLE ⚠️
 
  
 
