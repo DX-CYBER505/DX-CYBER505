@@ -11,17 +11,10 @@
 [![image](https://www.linkpicture.com/q/SGVhack18_8.gif)](https://www.linkpicture.com/view.php?img=LPic63517e6c7db07780390008)
 
 - 💻𝐆𝐈𝐓𝐇𝐔𝐁:- [DX-CYBER BOY] (https://github.com/DX-CYBER505) 
+-
+--NO DATA AVAILABLE ⚠️
 
-
- -𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊:-レイハンプレイボーイ (https://www.facebook.com/Darkcyber6) 𝐹𝑂𝐿𝐿𝑂𝑊 𝑀𝐸 
  
- -𝐅𝐁 𝐆𝐑𝐎𝐔𝐏:-𝑇𝐸𝑅𝑀𝑈𝑋 𝐻𝐸𝐿𝑃𝐼𝑁𝐺 𝐶𝐸𝑁𝑇𝐸𝑅 (https://facebook.com/groups/1291983471548411/) 𝐽𝑂𝐼𝑁
- 
- -𝐌𝐒 𝐆𝐑𝐎𝐔𝐏:-⚠️TEᖇᗰᑌ᙭🔥ᕼEᒪᑭIᑎG☢️ᑕEᑎTEᖇ☢️⇻ (https://m.me/j/AbYsSf2m31qwbzUz/) 𝐽𝑂𝐼𝑁
- 
- -𝐓𝐄𝐀𝐌:-˜”*°•🔰DX-CYBER☣️TEAM☣️•°*”˜ 
- 
- -𝐖𝐇𝐀𝐓𝐒𝐀𝐏𝐏:-+8801979526394 (wa.me/+8801979526394) 𝐴𝑁𝑌 𝑃𝑅𝑂𝐵𝐿𝐸𝑀 𝑀𝐸𝑆𝑆𝐸𝐺𝐸 𝑀𝐸 𝑂𝑁𝐿𝑌 [𝑇𝐸𝑋𝑇]
 
 <img align="center" alt="line" src="https://github.com/DalpatRathore/dalpatrathore/blob/main/assets/images/line-2.svg">
 
@@ -36,13 +29,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=dx-cyber505&label=Profile%20views&color=0e75b6&style=flat" alt="dx-cyber505" /> </p>
 
-- 🔭 I’m currently working on **FB-CRAKING**
+- 🔭 I’m currently working on **FB~HACKING**
 
 - 🌱 I’m currently learning **Python3**
 
 - 📫 How to reach me **backbadis@gmail.com**
 
-- ⚡ Fun fact **I WILL FUCK YOUR GF NAW GO🤧**
+- ⚡ Fun fact **I WILL FUCK YOUR GF NOW GO🤧**
 
 <h3 align="left">Connect with me:</h3>
 
